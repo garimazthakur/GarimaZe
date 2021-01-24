@@ -1,5 +1,6 @@
-### Hey there! I'm Garima Thakur 👋
-Welcome to my Github profile.
+### Hey there! 
+### I'm Garima Thakur 👋
+
 
 
 
