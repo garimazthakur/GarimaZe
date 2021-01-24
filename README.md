@@ -1,5 +1,5 @@
-### Hey there! 
-### I'm Garima Thakur 👋
+#### Hey there! 
+#### I'm Garima Thakur 👋
 
 
 
